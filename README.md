@@ -1,2 +1,2 @@
-#Prof. Dr. Ado Jorio de Vasconcelos
+Prof. Dr. Ado Jorio de Vasconcelos
 
